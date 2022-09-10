@@ -13,4 +13,4 @@
 
 | [<sub>Patricia Albuquerque</sub>](https://github.com/prarezende) |
 | :---: |
-|[Linkedin](https://www.linkedin.com/in/patricia-albuquerque-ti-30250)|
+|[Linkedin](https://www.linkedin.com/in/patricia-albuquerque-ti)|
